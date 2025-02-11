@@ -1,2 +1,2 @@
-Staistical Neurosicience 2025: Millie Singh
--------------------------------------------
+Staistical Neurosicience 2025: Rokas Sonis
+------------------------------------------
