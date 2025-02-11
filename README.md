@@ -1,2 +1,2 @@
-Staistical Neurosicience 2025: Rokas Sonis
-------------------------------------------
+Staistical Neurosicience 2025: Rokas Stonis
+-------------------------------------------
